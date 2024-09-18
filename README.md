@@ -1,0 +1,10 @@
+ola bem vindo [a] ao meu perfil! 🍒
+------------------ 🖤 --------------------
+MEU NOME É THAINARA BARBOSA 😊
+ESTOU TENDO UMA EXPERIÊCIA NO GITHUB, E ESTA SENDO INRÍVEL! 🥇
+EU SOU UMA MENINA DE PELE CLARA, DE CABELOS ESCUROS E CURTO 🌸
+GOSTO BASTANTE DE ATIVIDADES AO AR LIVRE, ESTOU EDITANDO ISSO PRA VCS NA ESCOLA NA SALA DE INFOMÁTICA 😘
+estou gostando bastante de estuda e ter experinêcias no alura, tenho certeza que vcs ybm vão adorar ☑️
+'sE QUISERES ENTRAR EM CONTATO COMIGO E CONHECER MAIS DE MEUS PROJETOS:
+-00001124798699@al.educacao.sp.gov.br
+ÓTIMA CONTINUAÇÃO DE TRILHAS DE ESTUDOS... 🖤
